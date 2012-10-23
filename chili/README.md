@@ -16,17 +16,17 @@ tasting and adjusting; time is the biggest ingredient here.
 
 ## Ingredients
 
-1.  400g lean beef mince
-2.  Half chorizo ring, cubed
-3.  Large onion, diced
-4.  1 x habanero pepper
-5.  2 x chipotle pepper
-6.  1 x tin chopped tomatoes
-7.  1 x tin kidney beans in chili sauce
-8.  Cumin (powder)
-9.  Cinnamon (powder)
-10. Dark chocolate
-11. Ketchup
+* 400g lean beef mince
+* Half chorizo ring, cubed
+* Large onion, diced
+* 1 x habanero pepper
+* 2 x chipotle pepper
+* 1 x tin chopped tomatoes
+* 1 x tin kidney beans in chili sauce
+* Cumin (powder)
+* Cinnamon (powder)
+* Dark chocolate
+* Ketchup
 
 ## Method
 
