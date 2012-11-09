@@ -1,5 +1,7 @@
 # Ragu
 
+[![Ragu](http://distilleryimage11.s3.amazonaws.com/3437a290d2b511e193761231381b7339_7.jpg)](http://instagram.com/p/NUYUuhIjI7/)
+
 **Serves 3–4**
 
 This, like my [chili](https://github.com/csswizardry/recipes/tree/master/chili),

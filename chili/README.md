@@ -1,5 +1,7 @@
 # Chili
 
+[![Chili](http://distilleryimage10.s3.amazonaws.com/5e3731448ca811e1a9f71231382044a1_7.jpg)](http://instagram.com/p/Ju1vqEojLO/)
+
 **Serves 3–4**
 
 This is a firm favourite of mine that I’ve honed over the past couple of years.
